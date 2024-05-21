@@ -12,4 +12,4 @@ Meu nome é Camila Silva
 
 📱 @camilag_silva
 
-![](https://media1.tenor.com/m/y37jNuLhSJEAAAAd/dzao-nazare.gif)
+![](https://media1.tenor.com/m/2YRJ_cZfPB8AAAAd/thales-deboche.gif)
